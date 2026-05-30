@@ -30,6 +30,8 @@ sorry i screamed
 
 sorry i rebel you
 
+sorry i forgot your words
+
 sorry for being a trash
 
 sorry for being an idiot 
@@ -50,6 +52,8 @@ sorry i didn't listen to you
 
 sorry i didn't treat you nicely
 
+sorry i made so many mistakes
+
 sorry to make you sad
 
 sorry to make you mad
@@ -57,6 +61,12 @@ sorry to make you mad
 sorry to make you depressed
 
 sorry to make you offended
+
+sorry I'm not good enough as a daughter 
+
+sorry I'm not good enough as a sister
+
+sorry I'm not good enough as a family
 
 sorry to disappoint you 
 
@@ -66,6 +76,6 @@ sorry to bother you
 
 sorry for being born in this world 
 
-sorry I'm exist.
+sorry for my existence.
 
 ## please forgive me for everything i did.
