@@ -18,9 +18,17 @@ sorry I'm unstable
 
 sorry I'm childish
 
+sorry i'm sluggish
+
+sorry i'm poor
+
+sorry i'm unhealthy
+
 sorry I'm not good enough
 
 sorry I'm not perfect
+
+sorry i'm not productive
 
 sorry i cried
 
@@ -37,6 +45,8 @@ sorry for being a trash
 sorry for being an idiot 
 
 sorry for being your burden
+
+sorry for being a disaster
 
 sorry I couldn't understand you
 
